@@ -227,4 +227,4 @@ Cube 2: Sauerbraten is offered as a full free version with all features and upda
 Get ready to enjoy the thrilling world of Cube 2: Sauerbraten! Download now and immerse yourself in hours of fun and excitement.
 
 ---
-**Last updated:** 2026-09-25 18:19:37 UTC
+**Last updated:** 2026-09-25 22:04:14 UTC
